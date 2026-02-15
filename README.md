@@ -1,8 +1,3 @@
-## Hi there 👋
-
-
-
-
  Hi, I'm Vivek 👋
 
  🚀 About Me
